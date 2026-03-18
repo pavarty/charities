@@ -2,7 +2,7 @@
 >I value giving back, supporting meaningful causes, and making a positive impact in the world. Here are some of the causes that I support. <br>
 <br>
 
->There is a creator on Twitch who is making a [list.](https://ellyskey.notion.site/1df9afbbaa7d80abb5e0e4aa7684d6fa?v=1df9afbbaa7d8026ac9d000cdc4a2ab3)
+>There is a [creator on Twitch](https://www.twitch.tv/ellyskey) who is making a [list.](https://ellyskey.notion.site/1df9afbbaa7d80abb5e0e4aa7684d6fa?v=1df9afbbaa7d8026ac9d000cdc4a2ab3)
 >I support these too.
 ----
 > 🌱 | Environmental & Sustainability  
