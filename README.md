@@ -1,5 +1,5 @@
 # charities
-Charities I support.
+>I value giving back, supporting meaningful causes, and making a positive impact in the world. Here are some of the causes that I support.
 
 > 🌱 | Environmental & Sustainability  
 [Arbor Day Foundation](https://www.arborday.org/)  
